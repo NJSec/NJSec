@@ -1,0 +1,2 @@
+- Hi!, I'm NJSec(NewJeans Security)❤
+- "What does it mean?" Oh, I just like NewJeans
